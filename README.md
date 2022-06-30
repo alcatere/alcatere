@@ -1,5 +1,5 @@
 # Hi, I am Rafael Arana 
-## I´m working to become an excellent Data Scientist 👨‍🔬
+## I´m working to become one of the best Data Scientist in Lantin America 👨‍🔬
 
 i´m currently learning a lot from different courses and applying all the knowledge in different projects that i´m making 📖.
 
